@@ -2,4 +2,5 @@
 
 https://luuull.github.io/gta-mapadev
 
-![gif](https://media.giphy.com/media/KEkhoEpM8Go6GmsgJk/giphy.gif)
+
+![img](https://user-images.githubusercontent.com/101467080/181393550-dd9c399d-7bbe-415c-87ab-98503ffc95b2.jpeg)
